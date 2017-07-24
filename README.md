@@ -1,1 +1,0 @@
-# sinav_oturma_plan-
